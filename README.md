@@ -8,7 +8,7 @@
 
 ![image](https://github.com/user-attachments/assets/feed5c23-5984-4d84-8c77-9c31e6b14b00)
 
-![AftermathOMENVIPPAIDHUB](https://github.com/user-attachments/assets/30735082-6ee0-42e2-97e9-8f5a1bce29fe)
+
 
 
 ---
